@@ -1,4 +1,4 @@
-# 
+# Ultimate WinRAR templates for Mac OS | Advanced WinRAR templates for PC Windows. Featuring deep scan and desktop organization — optimized for maximum performance on every platform.
 
 
 
